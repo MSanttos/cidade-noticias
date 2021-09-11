@@ -1,1 +1,2 @@
-# notícias-cidade![layout](https://user-images.githubusercontent.com/39106898/132930577-043431f4-2440-4f5c-820b-106dc87454b1.jpeg)
+# notícias-cidade![layout](https://user-images.githubusercontent.com/39106898/132934777-bb3ce8bf-5a86-4ea0-9ba8-2640538aa12a.jpeg)
+
